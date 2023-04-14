@@ -1,1 +1,1 @@
-# Ta AI
+# prezo por micro pontinhos, deu td errado
